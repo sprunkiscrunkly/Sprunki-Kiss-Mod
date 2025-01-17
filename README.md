@@ -1,5 +1,7 @@
 # What is Sprunki Kiss Mod?
 
+👉👉 Click to play: [Sprunki Kiss Mod](https://sprunkiscrunkly.com/sprunki-kiss-mod/)
+
 ![Sprunki Kiss Mod](https://s.sprunkiscrunkly.com/img/games/sprunki-kiss-mod.png "Sprunki Kiss Mod")
 
 Welcome to Sprunki Kiss Mod - your gateway to a romantic fan-created modification of the beloved Incredibox universe! This unique mod takes you on a journey through melodic realms where music and romance blend into beautiful harmonies.
